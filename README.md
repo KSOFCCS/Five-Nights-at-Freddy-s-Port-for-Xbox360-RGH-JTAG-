@@ -5,3 +5,6 @@ To follow the detailed progress and access exclusive content, such as technical 
 
 My Server Discord:
 https://discord.com/invite/tANM6ZNRNF
+
+![FNAF1MAINMENU](https://github.com/user-attachments/assets/fab7da27-4b8e-444c-a9ca-ce37c3886b1b)
+
